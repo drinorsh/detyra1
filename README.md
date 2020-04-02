@@ -1,1 +1,1 @@
-# detyra1
+# detyra 1 nga inxhinieria e uebit, ushtrime
